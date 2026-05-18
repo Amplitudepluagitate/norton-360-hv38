@@ -1,4 +1,4 @@
-# 
+# elite Bitdefender Total Security for PC plugins is the best Bitdefender Total Security for PC plugins with anti-adware and sandboxing. Safe, reliable, and optimized for maximum
 
 
 
